@@ -1,4 +1,4 @@
-# *Hard Disk Sentinel Pro Crack (𝟸𝟶𝟸𝟺) + 𝚁𝚎𝚐𝚒𝚜𝚝𝚛𝚊𝚝𝚒𝚘𝚗 𝙺𝚎𝚢! 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍 𝙵𝚛𝚎𝚎
+# *Hard Disk Sentinel Pro Crack (𝟸𝟶𝟸𝟺) +𝚁𝚎𝚐𝚒𝚜𝚝𝚛𝚊𝚝𝚒𝚘𝚗 𝙺𝚎𝚢! 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍 𝙵𝚛𝚎𝚎
 
 Hard Disk Sentinel Pro Crack is a comprehensive hard drive monitoring tool that supports both HDD and SSD devices. This tool allows users to anticipate potential failures or data loss.
 
